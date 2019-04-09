@@ -1,0 +1,11 @@
+Hasil Modul 7 Bagian 5 & 6
+![alt text](https://raw.githubusercontent.com/ArdiArya/Modul-7-Bag-5-6/master/Screenshot%20(223).png)
+![alt text](https://raw.githubusercontent.com/ArdiArya/Modul-7-Bag-5-6/master/Screenshot%20(224).png)
+![alt text](https://raw.githubusercontent.com/ArdiArya/Modul-7-Bag-5-6/master/Screenshot%20(225).png)
+![alt text](https://raw.githubusercontent.com/ArdiArya/Modul-7-Bag-5-6/master/Screenshot%20(226).png)
+![alt text](https://raw.githubusercontent.com/ArdiArya/Modul-7-Bag-5-6/master/Screenshot%20(227).png)
+![alt text](https://raw.githubusercontent.com/ArdiArya/Modul-7-Bag-5-6/master/Screenshot%20(228).png)
+![alt text](https://raw.githubusercontent.com/ArdiArya/Modul-7-Bag-5-6/master/Screenshot%20(229).png)
+![alt text](https://raw.githubusercontent.com/ArdiArya/Modul-7-Bag-5-6/master/Screenshot%20(230).png)
+![alt text](https://raw.githubusercontent.com/ArdiArya/Modul-7-Bag-5-6/master/Screenshot%20(231).png)
+![alt text](https://raw.githubusercontent.com/ArdiArya/Modul-7-Bag-5-6/master/Screenshot%20(232).png)
